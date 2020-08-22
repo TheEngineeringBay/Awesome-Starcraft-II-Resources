@@ -1,1 +1,1 @@
-# Starcraft-2-Community-Resources
+# Starcraft 2 Community Resources
